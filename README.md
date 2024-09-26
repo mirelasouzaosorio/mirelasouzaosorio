@@ -6,4 +6,6 @@ Sou aluno do componente curricular de pensamento computacional pela rede estadua
 
 Utilizo em aula a plataforma
 
-### Voce
+### Você pode entrar em contato comigo Mirela.osorio@escola.pr.gov.br
+
+![] (link de gif)
