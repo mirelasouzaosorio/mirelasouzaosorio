@@ -8,4 +8,4 @@ Utilizo em aula a plataforma
 
 ### Você pode entrar em contato comigo Mirela.osorio@escola.pr.gov.br
 
-![] (link de gif)
+![] (https://media.tenor.com/nX3BdES-doYAAAAi/timao.gif)
